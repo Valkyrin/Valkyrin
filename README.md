@@ -43,7 +43,7 @@ https://www.imood.com/users/Valkyrin
 <p>
 Spacehey:
 
-(Coming Soon!)
+https://spacehey.com/valkyrin
 </p>
 <br>
 <br>
