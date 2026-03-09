@@ -1,3 +1,4 @@
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Valkyrin)
 <img src="https://i.pinimg.com/736x/9d/73/81/9d73816b40070a68b8d261627b341185.jpg" align="left" width="330" />
 <div align="center"/>
 <p>
