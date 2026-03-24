@@ -11,6 +11,10 @@ He/Him
 <p>
 mostly hanging around the docks or with friends
 
+NORTHERN ENGLAND RAHHHHHHHHHH
+
+UP THE NORTH!!! FLY THE RED AND YELLOW STRIPES!!!
+
 I'm often not paying attention to my screen so pls whisper if it seems like i'm ignoring you!!!
 
 **FEEL FREE TO MSG ME!! I PROMISE I WILL RESPOND AT SOME POINT**
