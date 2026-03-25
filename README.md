@@ -17,7 +17,7 @@ UP THE NORTH!!! FLY THE RED AND YELLOW STRIPES!!!
 
 I'm in a really shitty spot atm having recently lost my job, i'd usually hate to ask but ANY help I would be INCREDIBLY grateful for, tysm T-T
 
-buymeacoffee.com/Valkyrin
+https://buymeacoffee.com/Valkyrin
 
 **FEEL FREE TO MSG ME!! I PROMISE I WILL RESPOND AT SOME POINT**
 </p>
