@@ -15,9 +15,9 @@ mostly hanging around the docks or with friends
 
 NORTHERN ENGLAND RAHHHHHHHHHH
 
-UP THE NORTH!!! FLY THE RED AND YELLOW STRIPES!!!
+lowkey a total freak (not in that way get your head out the gutter bro)
 
-**FEEL FREE TO MSG ME!! I PROMISE I WILL RESPOND AT SOME POINT**
+**FEEL FREE TO WHISPER ME!! I PROMISE I WILL RESPOND AT SOME POINT**
 </p>
 <br>
 <p>
