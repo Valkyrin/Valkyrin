@@ -15,7 +15,7 @@ mostly hanging around the docks or with friends
 
 Check out my Carrd below for more info!
 
-lowkey a total freak (not in that way get your head out the gutter bro)
+Genuinely not a sane person, and I do not mean that in an edgy way.
 
 **FEEL FREE TO WHISPER ME!! I PROMISE I WILL RESPOND AT SOME POINT**
 </p>
