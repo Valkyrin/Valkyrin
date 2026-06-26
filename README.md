@@ -65,4 +65,4 @@ BYEEEEEEEE <3
 <div align="center"/>
 <p>
 
-^^ Artwork by the amazing cr3esticks!! ^^
+<< Artwork by the amazing cr3esticks!! <<
