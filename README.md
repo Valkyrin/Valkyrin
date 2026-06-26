@@ -50,7 +50,6 @@ Spacehey:
 https://spacehey.com/valkyrin
 </p>
 <br>
-<br>
 <p>
 Pronounspage:
   
@@ -65,3 +64,5 @@ BYEEEEEEEE <3
 <img src="https://cdn.discordapp.com/attachments/1183913752807096431/1520193251485814885/Untitled142_20260626230644.png?ex=6a404dca&is=6a3efc4a&hm=ffe7cc58a7eb90d33ca99af8e9e0d2da809b90f3ea024a7e82b0e8dd6b0d1334&" align="left" width="330" />
 <div align="center"/>
 <p>
+
+^^ Artwork by the amazing cr3esticks!! ^^
