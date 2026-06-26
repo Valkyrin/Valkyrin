@@ -5,7 +5,7 @@
   
 **Valen** / Val / V
 
-He/Him
+I am a Concept, not a real person O.O
 
 ~24~
 </p>
