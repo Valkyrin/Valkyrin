@@ -55,7 +55,7 @@ https://spacehey.com/valkyrin
 <p>
 Pronounspage:
   
-https://en.pronouns.page/@twilivalkyrie
+https://en.pronouns.page/@Valkyr1n
 <p>
 BYEEEEEEEE <3
 </p>
