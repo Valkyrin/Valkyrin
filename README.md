@@ -7,6 +7,8 @@
 
 I am a Concept, not a real person O.O
 
+He/Him
+
 ~24~
 </p>
 <br>
