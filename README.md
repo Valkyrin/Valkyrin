@@ -1,5 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Valkyrin&color=red&style=plastic)
-<img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMXU4b3J6ejVwZmI1YmVzc3NtaTQ5OXkzdzEwMTQyYmp0dmY2aDJsMiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/mSWFAgFkUAaR3vtxb6/giphy.gif" align="left" width="330" />
+<img src="https://i.pinimg.com/736x/09/1c/ef/091cef17ddc76467e0c5d4119dc5b09f.jpg" align="left" width="330" />
 <div align="center"/>
 <p>
   
@@ -32,7 +32,7 @@ https://valkyrin.atabook.org
     <img width="400px" src="https://64.media.tumblr.com/b8c66a9981682173f1d921c946d692d4/fb6ad40c5c489378-5f/s2048x3072/d8b9c7f098a05b799a99bb46ed83ab389adc2b40.pnj" >
     <img width="400px" src="https://64.media.tumblr.com/b8c66a9981682173f1d921c946d692d4/fb6ad40c5c489378-5f/s2048x3072/d8b9c7f098a05b799a99bb46ed83ab389adc2b40.pnj" >
 </p>ㅤ  
-<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYzFkZ2c0ZTN4MjViM2pud2F1dDd2MmFwMWY4MDAxazE1M2FsbXlpNyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/uQ8GNCUFBIEq3KCaAD/giphy.gif" align="left" width="330" />
+<img src="https://i.pinimg.com/736x/33/c5/bb/33c5bb5842a62a1ef74507d1ff134535.jpg" align="left" width="330" />
 <div align="center"/>
 <p>
 My Carrd!:
