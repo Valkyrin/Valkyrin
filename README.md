@@ -5,7 +5,7 @@
   
 **Valen** / Val / V
 
-I am a Concept, not a real person O.O
+Add me on Spacehey!!!
 
 He/Him
 
