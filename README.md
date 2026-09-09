@@ -69,8 +69,8 @@ BYEEEEEEEE <3
 <br clear="left"/>
 
 </p>ㅤ  
-<img src="https://media.discordapp.net/attachments/1183913752807096431/1520193251485814885/Untitled142_20260626230644.png?ex=6a862d4a&is=6a84dbca&hm=5f002a0f3b8087d322dd4341987b5251ae221cee86e55c0447163c6f48b5334c&=&format=webp&quality=lossless&width=876&height=1024" align="left" width="330" />
+<img src="https://cdn.discordapp.com/attachments/1183913752807096431/1544437401835937842/IMG_0018.png?ex=6aa2642a&is=6aa112aa&hm=3becf0a81b00ff8348c9fa061e51a5079296c483137972a880372b703b4230f8&" align="left" width="330" />
 <div align="center"/>
 <p>
 
-<< Artwork by the amazing cr3esticks!! <<
+<< Some of my own Art!! Commissions open!!! <<
