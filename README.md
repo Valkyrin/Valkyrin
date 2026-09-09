@@ -5,7 +5,7 @@
   
 **Valen** / Val / V
 
-Add me on Spacehey!!!
+Add me on Spacehey or FriendRewind!!!
 
 He/Him
 
@@ -50,6 +50,12 @@ https://www.imood.com/users/Valkyrin
 Spacehey:
 
 https://spacehey.com/valkyrin
+</p>
+<br>
+<p>
+Friendrewind:
+
+https://friendrewind.com/profile.php?id=33936
 </p>
 <br>
 <p>
