@@ -69,7 +69,7 @@ BYEEEEEEEE <3
 <br clear="left"/>
 
 </p>ㅤ  
-<img src="https://cdn.discordapp.com/attachments/1183913752807096431/1544437401835937842/IMG_0018.png?ex=6aa2642a&is=6aa112aa&hm=3becf0a81b00ff8348c9fa061e51a5079296c483137972a880372b703b4230f8&" align="left" width="330" />
+<img src="https://media.discordapp.net/attachments/1183913752807096431/1544437401835937842/IMG_0018.png?ex=6aaaf5ea&is=6aa9a46a&hm=6e2ed8cf5ff065a022f0a70026ab131b5cde72416aae5dd5a57195fe804f18bf&=&format=webp&quality=lossless&width=767&height=1024" align="left" width="330" />
 <div align="center"/>
 <p>
 
