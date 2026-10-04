@@ -5,7 +5,7 @@
   
 **Valen** / Val / V
 
-Add me on Spacehey or FriendRewind!!!
+pfp by me!! (pls commission me)
 
 He/Him
 
